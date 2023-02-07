@@ -1,1 +1,1 @@
-My first readme
+being ready today
