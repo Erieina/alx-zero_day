@@ -1,1 +1,1 @@
-being ready today
+being an engineer
